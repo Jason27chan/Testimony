@@ -1,3 +1,5 @@
+# Baptism Testimony
+
 In high school, I had a lot of friends of circumstance: my math friends, my track friends, my band friends, etc. 
 My only consistent friend was my best friend Ivy. All throughout high school, we were each other’s comforts through 
 bad tests, hard classes, and messy relationships. Whenever I felt broken or lonely, her presence would remind me 
