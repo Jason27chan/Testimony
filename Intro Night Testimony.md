@@ -1,33 +1,9 @@
 # Intro Night Testimony
 
-In high school, I felt very lonely. All my friendships seemed to be based around clubs or classes, and as soon as those 
-would disappear, so would my friends. My only genuine friend was my best friend Ivy. I shared everything with her: my 
-interests, my thoughts, and my emotions. In my insecurity, I believed that if this person who knew everything about me 
-didn’t love me, then how could I be lovable? She became my happiness, and I soon learned that people aren’t meant to be 
-our happiness. Despair would overtake me whenever it seemed that her love for me had waned, whether it was her becoming 
-closer to other people, or just her being too busy to talk to me. The final nail in the coffin was one busy summer where 
-she didn’t have the time to text me. If she couldn’t make time for me, then she obviously didn’t care enough about me, 
-and I don’t want someone like that in my life. With this self-centered mindset, I cut her out of my life.  
+In high school, I felt very lonely. All my friendships seemed to be based around clubs or classes, and as soon as those would disappear, so would my friends. My only genuine friend was my best friend Ivy. I shared everything with her: my interests, my thoughts, and my emotions. In my insecurity, I believed that if this person who knew everything about me didn’t love me, then how could I be lovable? She became my happiness, and I soon learned that people aren’t meant to be our happiness. Despair would overtake me whenever it seemed that her love for me had waned, whether it was her becoming closer to other people, or just her being too busy to talk to me. The final nail in the coffin was one busy summer where she didn’t have the time to text me. If she couldn’t make time for me, then she obviously didn’t care enough about me, and I don’t want someone like that in my life. With this self-centered mindset, I cut her out of my life.  
 
-I came to college hopeful that here, I would finally find someone who would care about me. Here, I would finally be happy. 
-A person in my first college lecture invited me to intro night, where I found a family. In this family, I found older 
-brothers and sisters who gave their time, money, and energy to me when I hadn’t done anything for them. I never had anyone 
-say to me, “Hey, let’s meet up,” and dedicate time to building a relationship with me, but I had more meet ups in fall of 
-my freshman year than I had in my whole life. In this family, I found brothers and sisters about whom I thought, “We would 
-never get along; we’re just too different,” but they would say to me, “Hey, let’s try.”  In awkward silences and forced 
-conversations, I found the most beautiful love because we had nothing to offer each other, but we cared enough to give 
-each other time and energy. In my family group, there was a sister who probably thought I was the most annoying person in 
-the world (she might still think so), but she gave me a box of candy during finals week, saying, “You’re my freshman, and 
-I care about you.” When they preached to me about a God who loves, I could already see how beautiful He was in the people 
-He placed around me. I could also see how imperfect I was. Where I only loved “deserving” people, God loved indiscriminately. 
-Where I loved because of what people did, God loved because of who He is. Where I turned away from the people that hurt me, 
-God loved us so much that He sent His son down so that we could have victory through Jesus. 
+I came to college hopeful that here, I would finally find someone who would care about me. Here, I would finally be happy. A person in my first college lecture invited me to intro night, where I found a family. In this family, I found older brothers and sisters who gave their time, money, and energy to me when I hadn’t done anything for them. I never had anyone say to me, “Hey, let’s meet up,” and dedicate time to building a relationship with me, but I had more meet ups in fall of my freshman year than I had in my whole life. In this family, I found brothers and sisters about whom I thought, “We would never get along; we’re just too different,” but they would say to me, “Hey, let’s try.”  In awkward silences and forced conversations, I found the most beautiful love because we had nothing to offer each other, but we cared enough to give each other time and energy. In my family group, there was a sister who probably thought I was the most annoying person in the world (she might still think so), but she gave me a box of candy during finals week, saying, “You’re my freshman, and I care about you.” When they preached to me about a God who loves, I could already see how beautiful He was in the people He placed around me. I could also see how imperfect I was. Where I only loved “deserving” people, God loved indiscriminately. Where I loved because of what people did, God loved because of who He is. Where I turned away from the people that hurt me, God loved us so much that He sent His son down so that we could have victory through Jesus. 
 
-After months of the Spirit working in me, I was finally able to forgive Ivy. In seeing her again, the insecurity that used 
-to scream in my ear about how I wasn’t beautiful, about how I wasn’t lovable became a whisper, and for the first time in our 
-relationship, I felt free.
+After months of the Spirit working in me, I was finally able to forgive Ivy. In seeing her again, the insecurity that used to scream in my ear about how I wasn’t beautiful, about how I wasn’t lovable became a whisper, and for the first time in our relationship, I felt free.
 
-Some of you guys might have come to college with the same mindset that I had: that here, you’ll finally be happy. Maybe 
-you’re looking for the right friends, the right job, or the right girlfriend or boyfriend, and you might find them here. 
-My prayer for you is that you’d find the happiness you’re looking for at the cross, where by the blood of Christ, we’ve 
-be promised a life eternal by a God who’ll never leave us alone. 
+Some of you guys might have come to college with the same mindset that I had: that here, you’ll finally be happy. Maybe you’re looking for the right friends, the right job, or the right girlfriend or boyfriend, and you might find them here. My prayer for you is that you’d find the happiness you’re looking for at the cross, where by the blood of Christ, we’ve be promised a life eternal by a God who’ll never leave us alone. 
