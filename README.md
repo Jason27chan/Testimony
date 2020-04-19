@@ -4,7 +4,7 @@ Hi, my name is Jason Chan. This repository contains my stories of how God change
 
 Here are the links and descriptions in reverse chronological order.
 
-1. Testimony: This is the story I would tell anyone who approaches me and asks about my story of how I came to Christ.
+1. Testimony(In progress): This is the story I would tell anyone who approaches me and asks about my story of how I came to Christ.
 This story changes as God convicts me and reveals more of my heart at this pivotal point in time
 2. [Intro Night Testimony](https://github.com/Jason27chan/Testimony/blob/master/Testimonies/Intro%20Night%20Testimony.md): 
 This is the story I told at JCA's 2018 intro night. This testimony more heavily emphasizes 
